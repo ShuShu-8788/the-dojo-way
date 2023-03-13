@@ -131,3 +131,5 @@ Join us [here](https://discord.com/invite/nNtVfKddDD).
 - [Jivan Bhardwaj](https://twitter.com/JivanBhardwaj05)
 - [Nakuru Wubni](https://twitter.com/nwubni)
 - [Cody Johnson](https://github.com/codyjohnsontx)
+- [Thankgod Ode](https://github.com/thankgodode)
+- [Vardaan Aggarwal](https://www.twitter.com/VardaanAgg)
